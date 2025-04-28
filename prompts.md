@@ -37,4 +37,4 @@ Também foram solicitados:
 
 ---
 
-# 📢 Bora cultivar inovação com estilo geek!
+# 📢 Bora cultivar inovação com estilo!
